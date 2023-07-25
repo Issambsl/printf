@@ -1,1 +1,1 @@
-team project issam and hassan EL faqir
+team project issam and hassan el faqir
